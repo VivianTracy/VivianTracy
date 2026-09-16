@@ -1,3 +1,3 @@
-# Hi, I'm Vivian Tracy 👋
+# Hi, I'm Vivian 👋
 
 
